@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently studying on **University of Granada**
 
-- 🌱 I’m currently **in my third year of study**
+- 🌱 I’m currently **in my fourth year of study**
 
 - 👯 I’m looking to collaborate on **any interesting project**
 
